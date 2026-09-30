@@ -107,7 +107,9 @@ in a weird way this feels like a conintuation of a video work I did over the sum
 <br>
 it was fun playing with the capture feature, and while the text isn't an afterthought if i'm not paying attention to the text i start to pay attention to the various captures setup. i really like the push and pull between the text and the "image"/video.  </p>
 
-
+jermany o'harris
+ligia clark 
+masion margela 
 
 
 # ineeeeed
